@@ -16,7 +16,7 @@ The tool now focuses on enterprise deployment scenarios and volume license manag
 
 kmspico download
 
-kmspico windows 10
+<a href="https://1kmspico.com">kmspico windows 10</a>
 
 kmspico activator
 
